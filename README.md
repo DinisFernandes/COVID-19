@@ -5,3 +5,5 @@ Podem contribuir  para a atualizaçao
 Abraço a todos
 Dinis Fernandes
 ######
+COVID-19_DELAUNAY_PORTUGAL
+
